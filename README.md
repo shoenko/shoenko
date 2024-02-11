@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @shoenko >w<
-- 📫 Reach me on shoenko@protonmail.com
+- 📫 Reach me on shoenko [at] protonmail.com
 - 😄 Pronouns: they/she
